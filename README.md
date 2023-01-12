@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rana.hossam.salah2017@gmail.com**
 
-- 📄 My CV (https://drive.google.com/file/d/1cyxwjEfMfZ0LHHXifgiRTq_nuvGWKR8F/view?usp=sharing)](https://drive.google.com/file/d/1GZ9bCQXLMaLXMPci4-7bDFEiEXr3pjPG/view?usp=sharing)
+- 📄 My CV https://drive.google.com/file/d/1GZ9bCQXLMaLXMPci4-7bDFEiEXr3pjPG/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
