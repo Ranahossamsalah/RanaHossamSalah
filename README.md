@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently doing freelance job **React project**
 
-- 🌱 I’m currently **training on problem solving and doing some freelance jobs**
+- 🌱 I’m currently **in internship with the sparks foundation as a web developer**
 
 - 📝 I regularly share thoughts on [https://www.linkedin.com/in/rana-elbehary-742970184/](https://www.linkedin.com/in/rana-elbehary-742970184/)
 
