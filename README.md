@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently **in internship with the sparks foundation as a web developer**
 
-- 📝 I regularly share thoughts on [https://www.linkedin.com/in/rana-elbehary-742970184/](https://www.linkedin.com/in/rana-elbehary-742970184/)
+- 📝 I regularly share thoughts on [[https://www.linkedin.com/in/rana-elbehary-742970184/](https://www.linkedin.com/in/rana-abdelsalam-742970184/)](https://www.linkedin.com/in/rana-elbehary-742970184/)
 
 - 📫 How to reach me **rana.hossam.salah2017@gmail.com**
 
